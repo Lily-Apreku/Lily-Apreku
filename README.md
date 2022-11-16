@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lily-Apreku
 - 👀 I’m interested in ..anything IT
 - 🌱 I’m currently learning .she codes basics and web development
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...on alot of things to empower and encourage ladies to join the tech fields,i am ready to learn too
 - 📫 How to reach me ...lilyapreku@gmail.com
 
 <!---
